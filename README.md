@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @glizzmam
 - 👀 I’m interested in youtube
-- 🌱 I’m currently learning hoq youtube works
+- 🌱 I’m currently learning how youtube works
 - 💞️ I’m looking to collaborate on getting better at it
 - 📫 How to reach me 1k subs
 
